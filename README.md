@@ -40,3 +40,9 @@ Ngoài những dòng trên thì còn có các dòng sen cây khác như: sen câ
 
 ### Giá sen cây tắm đứng bao nhiêu?
 Hiện nay trên thị trường có rất nhiều nơi bán sen cây của nhiều thương hiệu khác nhau với nhiều mức giá khác nhau từ thấp đến cao. Chính vì trên thị trường có rất nhiều sản phẩm nên để không mua phải hàng giả, hàng nhái kém chất lượng, quý khách hàng nên tham khảo giá ở các nhà phân phối, các đại lý bán thiết bị vệ sinh uy tín trên thị trường để được tư vấn cũng như biết được mức giá sen cây tắm một cách chi tiết nhất.
+
+Bộ sen cây nhà tắm
+Vòi Hoa sen tắm
+Sen tắm công trình
+Thiết bị vệ sinh tại hà nội
+Tổng kho thiết bị vệ sinh
